@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Angela-Mochu
-- 🌱 I’m currently learning at CUEA
 - 📫 How to reach me mochuangela21@gmail.com
 
 <!---
